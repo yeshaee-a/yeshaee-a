@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @yeshaee-a 
 - 👀 I’m interested in ... expanding my business
-- 🌱 I’m currently learning ... and relearmimg
+- 🌱 I’m currently learning ... and relearnimg
 - 💞️ I’m looking to collaborate on ...many works
-- 📫 How to reach me ...@Bandalas on discord
+- 📫 How to reach me ...@Bandalas on discord 
 - 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ...i'm interesting
 
